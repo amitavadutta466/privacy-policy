@@ -38,7 +38,7 @@ We value your trust and use commercially acceptable means to protect your data. 
 
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us:
 
-📧 **Email:** ipappstech@gmail.com
+📧 **Email:** info@ipappstech.com
 
 ---
 
