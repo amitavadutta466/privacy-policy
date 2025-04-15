@@ -44,4 +44,4 @@ If you have any questions or suggestions about our Privacy Policy, do not hesita
 
 ## 5. Policy Changes
 
-We may update this policy
+We may update this policy from time to time. You are advised to review this page periodically for any changes. These changes are effective immediately once posted.
